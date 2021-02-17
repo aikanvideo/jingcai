@@ -1,4 +1,8 @@
 # jingcai
+最新地址发布页
+
+微信用户和QQ用户请复制到浏览器访问！
+
 小说发布页
 http://www.cat91.info/
 
@@ -16,3 +20,5 @@ http://www.mhhappy.com/
 土豆potato:@tiger6789 
 qq:2734649053
 telegram交流群: https://t.me/aikanhub
+
+重要提示：收藏本页面，明天发大财
